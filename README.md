@@ -6,12 +6,11 @@ Software engineer with a proven ability to efficiently lead and mentor teams com
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=knnyczr&layout=compact)](https://github.com/knnyczr/github-readme-stats)
 
-👀 View my portfolio here: [Portfolio](www.knnyczr.com)
+👀  View my portfolio here: [Portfolio](www.knnyczr.com)
 
-📝 Check my resume out here: [Kenny's Resume drive](https://docs.google.com/document/d/1v7g-8Z0HOgB0p8-OCIWgzKOsUzS4rxEX_C0sOYBZR_s/edit)
+📝  Check my resume out here: [Kenny's Resume drive](https://docs.google.com/document/d/1v7g-8Z0HOgB0p8-OCIWgzKOsUzS4rxEX_C0sOYBZR_s/edit)
 
-💬 Message me here: [Linkedin/knnyczr](https://www.linkedin.com/in/knnyczr/)
+💬  Message me here: [Linkedin/knnyczr](https://www.linkedin.com/in/knnyczr/)
 
-📫 Reach me via email: [kenny@knnyczr.com](mailto:kenny@knnyczr.com)
+📫  Reach me via email: [kenny@knnyczr.com](mailto:kenny@knnyczr.com)
 
-📲 Call Me here: (914) 363-0261
